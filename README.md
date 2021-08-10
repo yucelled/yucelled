@@ -1,6 +1,7 @@
 ### Hi there 👋
 
-I'm Dilan! 
+I'm Dilan! I'm a PhD. candidate in the neuroimaging in psychiatry department of Amsterdam Medical Center.  
 
-[Twitter](https://twitter.com/yucelled)
+[follow me on twitter](https://twitter.com/yucelled)
+[email](yuceldilan@gmail.com)
 
